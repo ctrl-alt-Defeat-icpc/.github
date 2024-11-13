@@ -1,1 +1,1 @@
-you can participate in this repo to edit out team's profile readme! (⊙_◎)
+you can participate in this repo to edit our team's profile readme! (⊙_◎)
